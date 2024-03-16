@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2024 Goals: Contribute more to Open Source projects
-- ⚡ Fun fact: I love to watch movies
+- ⚡ Fun fact: I love to listen to music
 
 ### What I'm focusing on
 
